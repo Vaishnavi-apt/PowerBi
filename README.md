@@ -4,6 +4,8 @@ AtliQ Hardware, a consumer electronics enterprise experiencing rapid expansion, 
 Live Dashboard:
 Explore the Project Link here.
 
+✅ Live dashboard Link : https://lnkd.in/gZ97kfwW
+
 1.Finance View
 
 2.Sales View
